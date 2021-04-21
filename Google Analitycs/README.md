@@ -1,0 +1,1 @@
+Delphi com Google Analitycs
